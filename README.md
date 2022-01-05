@@ -3,5 +3,5 @@
 
 :dizzy: 19 years
 
-:dizzy: Trabalho e estudo na empresa Pado como desenvolvedora do furuto 
+:dizzy: Trabalho e estudo na empresa Pado como desenvolvedora do futuro 
 
