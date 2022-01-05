@@ -1,5 +1,5 @@
-### Oi pessoal :wave:
-Me chamo Gabrielly
-Tenho 19 anos
-E faço um trabalho/curso de desenvolvedor 
-:green_heart:
+### Oi pessoal :dizzy:
+:sparkles: Gabrielly Alves de Sousa Silva :sparkles:  
+:dizzy: 19 years  
+:dizzy: Trabalho e estudo na empresa Pado como desenvolvedora do futuro   
+
